@@ -1,0 +1,1 @@
+# Early orediction for chornic kidney diesease dettectiuon:A progressive approach to healtth managemen
